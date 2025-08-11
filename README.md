@@ -1,2 +1,2 @@
 # reciclaje-juego
-reclimos y ayudemos al planeta
+reclemos y aprendamos a reciclar
